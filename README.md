@@ -107,7 +107,7 @@ I’ve created a **demo video** of the tasks and uploaded it to LinkedIn, taggin
 
 ## 📬 Contact
 
-Email: jack@example.com  
+Email: jdnk5607@gmail.com  
 GitHub: Jxck-007(https://github.com/Jxck-007/)  
 LinkedIn: [Jegadeesh-Nandakumar](https://www.linkedin.com/in/jegadeesh-nandakumar)
 
